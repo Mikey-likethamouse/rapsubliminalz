@@ -1,6 +1,6 @@
 | Artist | Album | Song Title | Target of Diss | Selected Subliminal Disses |
 |:--|:--|:--|:--|:--|
-| Lil Wayne | Tha Carter III | 3Peat | Eminem | "Bounce right back on these bitches like Magic - Abracadabra, I get up like Viagra" This line gets referenced over and over again. "Bitch watch me! But they can Nazi me (not C - Crip diss) "I told my girl, when you fuck me, better fuck me good. Cause if another girl could, she gon' fuck me good" |
+| Lil Wayne | Tha Carter III | 3Peat | Eminem | "Bounce right back on these bitches like Magic - Abracadabra, I get up like Viagra"<br><br>This line gets referenced over and over again. "Bitch watch me! But they can Nazi me (not C - Crip diss) "I told my girl, when you fuck me, better fuck me good. Cause if another girl could, she gon' fuck me good" |
 | Lil Wayne | Tha Carter III | A Milli | Eminem | "You pop em cause we pop em like Orville Redenbacher" "Okay, you're a goon but what's a goon to a goblin?" Because Eminem used to be affiliated with "Goon Squad" "On some faggot bullshit - call em Dennis Rodman" Rodman played for Detroit. He also wore a dress. Em wore a dress in the "Without Me" music video. |
 | Lil Wayne | Tha Carter III | Dr. Carter | Eminem/Dr. Dre | Entire song is basically talking abt Em and how terrible his style is. Dr. Carter is a satirical version of Dr. Dre. Em is the rapper Wayne's tryna bring back to life. |
 | Lil Wayne | Tha Carter III | Let The Beat Build | Eminem/Dr. Dre | "I'm gonna fill em up, his momma can't tell him / And the doctors can't heal em, I'mma kill em" |
